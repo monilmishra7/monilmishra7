@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Currently working as a Brand Designer and learning backend development  <br>💬 Ask me about branding, UI/UX, or getting started with web & backend dev  <br>📫 How to reach me: LinkedIn – _your link_ | Instagram – _your link_  <br>😄 Pronouns: He/Him  <br>⚡ Fun fact: If I’m not designing or coding, I’m probably watching wrestling or football
+🔭 Currently working as a Brand Designer and learning backend development  <br>💬 Ask me about branding, UI/UX, or getting started with web & backend dev  <br>📫 How to reach me: LinkedIn – anandmishr07 | Instagram – @anands.mess  <br>😄 Pronouns: He/Him  <br>⚡ Fun fact: If I’m not designing or coding, I’m probably watching wrestling or football
 
 
 ## 🌐 Socials:
